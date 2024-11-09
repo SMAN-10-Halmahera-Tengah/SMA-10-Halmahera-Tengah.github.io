@@ -1,0 +1,1 @@
+# SMA-10-Halmahera-Tengah.github.io
